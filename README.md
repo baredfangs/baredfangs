@@ -3,4 +3,4 @@
 
 
 
-<p align=center> hi im a malik
+<p align=center> hi im a Malik
