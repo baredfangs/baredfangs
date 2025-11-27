@@ -10,4 +10,4 @@ c+h is ok if im alone. If not, ask first ＾＾
 
 not good at socialising + inconsistent activity cuz i tend to get busy, sorry in advanced ><;
 
-dni zionists proship . generally js dont be weird 
+dni zionists, proship . generally js dont be weird 
