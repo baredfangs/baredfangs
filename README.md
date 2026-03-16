@@ -11,3 +11,5 @@ c+h is ok if im alone. If not, ask first ＾＾
 not good at socialising + i tend to get busy, sorry in advanced
 
 dni zionists, proship
+
+doubles of my "me" chars r ok. lets all b friends, hold hands and coexist or sumthin
