@@ -10,4 +10,4 @@ not good at socialising + i tend to get busy, sorry in advanced
 
 dni zionists, proship
 
-multishipper. i like rarepairs and im chill w any ship as long as its not proship
+multishipper. im chill w pretty much any ship as long as its not proship
